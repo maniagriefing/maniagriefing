@@ -1,16 +1,17 @@
-## Hi there 👋
+<p align="center">
+  SO TELL ME IF I'M⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>WORTHY OF LOVE?</ins>
+</p>
 
-<!--
-**maniagriefing/maniagriefing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img src="https://64.media.tumblr.com/980c5a5d4ba41602c020f26d1986db56/6d7ed05b81ca1c1b-20/s2048x3072/075cb39aa6c64d875215058f3f91514751fe508d.pnj"/>
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <a href=https://rentry.co/fcrsaken>info.</a> ⠀–⠀ <a href=https://pronouns.cc/@trud>more.</a> ⠀–⠀ <a href=https://rochas313.atabook.org>ata</a>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>
+
+<p align="right">
+code by <ins>devotedfollower . .</ins> please contact me if me using your code is a problem , thank you !
+</p>
