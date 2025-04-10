@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/fcrsaken>info.</a></p> ⠀–⠀ <a href=https://pronouns.cc/@trud>more.</a> ⠀–⠀ <a href=https://rochas313.atabook.org>ata.</a>
+  <a href=https://rentry.co/fcrsaken>info.</a> ⠀–⠀ <a href=https://pronouns.cc/@trud>more.</a> ⠀–⠀ <a href=https://rochas313.atabook.org>ata.</a>
 </p>
 
 <br>
