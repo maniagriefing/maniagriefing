@@ -1,5 +1,5 @@
 <p align="center">
-  SO TELL ME IF I'M⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>WORTHY OF LOVE?</ins>
+  I TRIED SO HARD TO⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ GET AWAY FROM <ins>THIS .</ins>
 </p>
 
 <p align="center">
@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/fcrsaken>info.</a> ⠀–⠀ <a href=https://pronouns.cc/@trud>more.</a> ⠀–⠀ <a href=https://rochas313.atabook.org>ata.</a>
+  <a href=https://rentry.co/rochasoi>info.</a> ⠀–⠀ <a href=https://pronouns.cc/@rochasoi>more.</a> ⠀–⠀ <a href=https://rochas313.atabook.org>ata.</a>
 </p>
 
 <br>
