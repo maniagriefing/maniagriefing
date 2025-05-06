@@ -1,5 +1,5 @@
 <p align="center">
-  I TRIED SO HARD TO⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ GET AWAY FROM <ins>THIS .</ins>
+  SO TELL ME IF I'M⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ WORTHY OF <ins>LOVE .</ins>
 </p>
 
 <p align="center">
@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/rochasoi>info.</a> ⠀–⠀ <a href=https://pronouns.cc/@rochasoi>more.</a> ⠀–⠀ <a href=https://rochas313.atabook.org>ata.</a>
+  <a href=https://en.pronouns.page/@cappy0>info.</a> ⠀–⠀ <a href=https://rentry.co/gojousatoru>hoard.</a> ⠀–⠀ <a href=https://rochas313.atabook.org>sign.</a>
 </p>
 
 <br>
